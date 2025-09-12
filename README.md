@@ -28,4 +28,5 @@ and Poppy Playtime ﹒~
 thats all, byebye
 (hi star, ily<3)
 
+<img width="400" height="38" alt="Image" src="https://github.com/user-attachments/assets/4c71a6f3-9b91-4a03-a4e8-c03cba43f7f7" />
 
