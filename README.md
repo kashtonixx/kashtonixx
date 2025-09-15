@@ -1,4 +1,4 @@
-<img width="400" height="225" alt="Image" src="https://github.com/user-attachments/assets/70badfbb-8b4b-452c-b7d3-807869bcf625" />
+<img width="400" height="141" alt="Image" src="https://github.com/user-attachments/assets/55a97ea4-8413-4295-816f-c685079e07c0" />
 
 ## ₁　　　　　𓎢𓎡　　　kashton　　╱　　souless　　ᛝ
 
@@ -10,6 +10,7 @@ i use he/they pronouns, and i am a system (OSDD) of 50+. i have very bad memory 
 i dont mind being interacted with, especially if i have c+h in my name. but please whisper first! 
 
 my birthday is september 12, and i am 14. 18+ please DNIUC, and anyone under 11 please DNI! im also taken so dont flirt
+i am a huge azure kin + his #1 fan /srs. doubles pls dni, sorry:(
 anyways, onto my interests .ᐟ ★
 
 # ♰ 𓏼  interests ◞
@@ -28,5 +29,5 @@ and Poppy Playtime ﹒~
 thats all, byebye
 (hi star, ily<3)
 
-<img width="400" height="38" alt="Image" src="https://github.com/user-attachments/assets/4c71a6f3-9b91-4a03-a4e8-c03cba43f7f7" /><img width="400" height="38" alt="Image" src="https://github.com/user-attachments/assets/4c71a6f3-9b91-4a03-a4e8-c03cba43f7f7" />
+<img width="400" height="141" alt="Image" src="https://github.com/user-attachments/assets/faf987ae-3b09-4a67-8392-3b6c7c647f99" />
 
