@@ -1,4 +1,4 @@
-<img width="400" height="141" alt="Image" src="https://github.com/user-attachments/assets/55a97ea4-8413-4295-816f-c685079e07c0" />
+<img width="250" height="100" alt="Image" src="https://github.com/user-attachments/assets/3fa29d7c-83f8-475e-97f7-3c808609e706" />
 
 ## ₁　　　　　𓎢𓎡　　　kashton　　╱　　souless　　ᛝ
 
@@ -29,5 +29,5 @@ and Poppy Playtime ﹒~
 thats all, byebye
 (hi star, hi skyb0x!! love yall<3)
 
-<img width="250" height="100" alt="Image" src="https://github.com/user-attachments/assets/af3fc363-f108-44e2-aba2-90f1ed29a4e6" />
+<img width="400" height="65" alt="Image" src="https://github.com/user-attachments/assets/86d5d91c-cd89-47e6-b1ef-5164434b1316" />
 
