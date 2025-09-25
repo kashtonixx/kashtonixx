@@ -10,17 +10,17 @@ i use he/they pronouns, and i am a system (OSDD) of 50+. i have very bad memory 
 i dont mind being interacted with, especially if i have c+h in my name. but please whisper first! 
 
 my birthday is september 12, and i am 14. 18+ please DNIUC, and anyone under 11 please DNI! im also taken so dont flirt
-i am a huge azure kin + his #1 fan /srs. doubles pls dni, sorry:(
+i am a huge broken spawn fictkin. he is me/srs doubles pls dni, sorry:(
 anyways, onto my interests .ᐟ ★
 
 # ♰ 𓏼  interests ◞
 
-꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : DOORS, PHIGHTING!, Stray, 8:11, FNF, OMORI, Picos School, Generation Loss, The Mandela Catalogue, Demon Slayer, Nicos Nextbots, Sonic.EXE, Sonic, REGRETEVATOR, Cookie Run Kingdom, FORSAKEN, JSAB+TPC, Rochas313, May Madness 2012
+꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : DOORS, PHIGHTING!, Stray, 8:11, FNF, OMORI, Picos School, Generation Loss, The Mandela Catalogue, Demon Slayer, Nicos Nextbots, Sonic.EXE, Sonic, REGRETEVATOR, Cookie Run Kingdom, FORSAKEN, JSAB+TPC, Rochas313, May Madness 2012, Let Him Go,
 and Poppy Playtime ﹒~
 
 # ꒰୨୧◞ 。please dni if...⠀
 
-; - ur under 11 unless close, ur 18 or over unless were close, ur a proshipper / darkshipper (yall r gross...)
+; - ur under 11 unless close, ur 18 or over unless were close, ur a proshipper / darkshipper (yall r gross...), also if ur a broken spawn fictkin. sorry
 
 # 〨   ˒˒   please note    ꜝꜝ ♡
 
