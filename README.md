@@ -27,7 +27,7 @@ and Poppy Playtime ﹒~
 ౿ ݁  .            i am mentally ill. i have autism, ADHD, bpd and osdd. please treat me with care:) ┆ if i say "im [blanks] #1 fan" please don't make it a compeition. it makes me uncomfortable, js respect that ┆ i am a fictkin w/ many fictotypes. i will tell some doubles to DNI, sorry :( ┆  we dont give out our SP like free money. you'll only get it if ur close to us! ┆ i have hypersomnia. if i dont reply immediately, don't take it to heart. im probably asleep! ᶻ𝗓
 
 thats all, byebye
-(hi star, hi skyb0x, hi null workz!! love yall<3)
+(hi star, hi skyb0x love yall<3)
 
 <img width="400" height="134" alt="Image" src="https://github.com/user-attachments/assets/8cccd0b5-6e72-45f3-a582-be0cb67bdf9a" />
 
