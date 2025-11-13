@@ -29,5 +29,5 @@ and Poppy Playtime ﹒~
 thats all, byebye
 (hi star, hi skyb0x love yall<3)
 
-<img width="2048" height="805" alt="Image" src="https://github.com/user-attachments/assets/f826c468-7455-4f43-8f87-860c7abc3d06" />
+![Image](https://github.com/user-attachments/assets/d84be2c5-ec56-4c09-8b04-2e0776b60e20)
 
