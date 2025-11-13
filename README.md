@@ -1,11 +1,11 @@
 <img width="2048" height="805" alt="Image" src="https://github.com/user-attachments/assets/f826c468-7455-4f43-8f87-860c7abc3d06" />
 
-## ₁　　　　　𓎢𓎡　　　kashton　　╱　　cipher　　ᛝ
+## ₁　　　　　𓎢𓎡　　　kashton　　╱　　ivan　　ᛝ
 
 
 ꧁༻✧༺꧂
 
-♯ ┆ hellooo, im atlas , kashton , bill or whatever cos im wearing. if ur reading this, you probably found me on ponytown! 
+♯ ┆ hellooo, im **ivan** / kashton or whatever cos im wearing. if ur reading this, you probably found me on ponytown! 
 i use he/they pronouns, and i am a system (OSDD) of 70+. i have very bad memory issues, im sorry if i dont remember you! :(
 i dont mind being interacted with, especially if i have c+h in my name. but please whisper first! 
 
