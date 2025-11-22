@@ -15,7 +15,7 @@ anyways, onto my interests .ᐟ ★
 
 # ♰ 𓏼  interests ◞
 
-꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : DOORS, PHIGHTING!, Stray, 8:11, FNF, OMORI, Picos School, Generation Loss, The Mandela Catalogue, Demon Slayer, Nicos Nextbots, Sonic.EXE, Sonic, REGRETEVATOR, Cookie Run Kingdom, FORSAKEN, JSAB+TPC, Rochas313, May Madness 2012, Let Him Go, Grace, **Gravity Falls**, Brandonworks, Bad Things, South Park,
+꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : **DOORS**, PHIGHTING!, Stray, **8:11**, FNF, OMORI, Picos School, Generation Loss, The Mandela Catalogue, Demon Slayer, Nicos Nextbots, Sonic.EXE, Sonic, REGRETEVATOR, Cookie Run Kingdom, FORSAKEN, **JSAB+TPC**, Rochas313, May Madness 2012, Let Him Go, Grace, **Gravity Falls**, **Brandonworks**, **Bad Things**, South Park,
 and Poppy Playtime ﹒~
 
 # ꒰୨୧◞ 。please dni if...⠀
