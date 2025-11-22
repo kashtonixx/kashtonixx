@@ -30,4 +30,5 @@ thats all, byebye
 (hi star, hi skyb0x love yall<3)
 
 ![Image](https://github.com/user-attachments/assets/d84be2c5-ec56-4c09-8b04-2e0776b60e20)
+![Image](https://github.com/user-attachments/assets/d6575cf2-b4ee-4e7e-9395-46677cbb7999)
 
