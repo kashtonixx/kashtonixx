@@ -1,22 +1,21 @@
 <img width="2048" height="805" alt="Image" src="https://github.com/user-attachments/assets/f826c468-7455-4f43-8f87-860c7abc3d06" />
 
-## ₁　　　　　𓎢𓎡　　　kashton　　╱　　ivan　　ᛝ
+## ₁　　　　　𓎢𓎡　　　kashton　　╱　　abaddon　　ᛝ
 
 
 ꧁༻✧༺꧂
 
-♯ ┆ hellooo, im **ivan** / kashton or whatever cos im wearing. if ur reading this, you probably found me on ponytown! 
+♯ ┆ hellooo, im **abaddon** / kashton or whatever cos im wearing. if ur reading this, you probably found me on ponytown! 
 i use he/they pronouns, and i am a system (OSDD) of 70+. i have very bad memory issues, im sorry if i dont remember you! :(
 i dont mind being interacted with, especially if i have c+h in my name. but please whisper first! 
 
 my birthday is september 12, and i am 14. 18+ please DNIUC, and anyone under 11 please DNI! im also taken so dont flirt.
-i am a huge ivan and broken spawn fictkin. they are me/srs doubles pls dni, sorry:( !!
+i am a huge ivan, abaddon and broken spawn fictkin. they are me/srs doubles pls dni, sorry:( !!
 anyways, onto my interests .ᐟ ★
 
 # ♰ 𓏼  interests ◞
 
-꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : **DOORS**, PHIGHTING!, Stray, **8:11**, FNF, OMORI, Picos School, Generation Loss, The Mandela Catalogue, Demon Slayer, Nicos Nextbots, Sonic.EXE, Sonic, REGRETEVATOR, Cookie Run Kingdom, FORSAKEN, **JSAB+TPC**, Rochas313, May Madness 2012, **Let Him Go**, Grace, **Gravity Falls**, **Brandonworks**, **Bad Things**, South Park,
-and Poppy Playtime ﹒~
+꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : **8:11**, **HWWHP**, FNF, FNAF, **Bad Things**, **Picos School**, **Let Him Go**, Forsaken, Block Tales, BFDI/TPOT, Befriend The Retroslop, Cold Front, CRK, Dandys World, Dead Plate, **DOORS**, DSMP, **Gravity Falls**, **JSAB**, Kaleidoscope, Ocean Terror, PHIGHTING, Pizza Game, Regretevator, Rochas313, **ItzSkeet_Playz**, **Brandonworks**, South Park, Squid Game, Hazbin Hotel, **Haunted Hotel**, Grace, TADC, Sonic, Chonny Jash. May Madness 2012, Poppy Playtime, OMORI, Demon Slayer, The Mandela Catalogue, **Nicos Nextbots**, Generation Loss, **Stray** ﹒~
 
 # ꒰୨୧◞ 。please dni if...⠀
 
