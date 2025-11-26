@@ -1,4 +1,4 @@
-<img width="2048" height="805" alt="Image" src="https://github.com/user-attachments/assets/f826c468-7455-4f43-8f87-860c7abc3d06" />
+<img width="400" height="110" alt="Image" src="https://github.com/user-attachments/assets/ae297f23-bd97-404b-8210-51b418b4991c" />
 
 ## ₁　　　　　𓎢𓎡　　　kashton　　╱　　abaddon　　ᛝ
 
