@@ -5,12 +5,10 @@
 
 ꧁༻✧༺꧂
 
-♯ ┆ hellooo, im **abaddon** / kashton or whatever cos im wearing. if ur reading this, you probably found me on ponytown! 
-i use he/they pronouns, and i am a system (OSDD) of 70+. i have very bad memory issues, im sorry if i dont remember you! :(
-i dont mind being interacted with, especially if i have c+h in my name. but please whisper first! 
+♯ ┆ greetings, my name is abaddon. and only that, no other names! if you hear someone call me atlas, it is because their either very close to me, an irl friend or they are unaware of my name change. anyways, i am 14, and i am neurodivergent (audhd) mentally ill fictive heavy system that collectively kins/is a fictkin of broken spawn, ivan (bad things), and abaddon. we prefer doubles to not interact, and we use we and i interchangeably. i am happily taken by star and skyb0x, <333 
 
-my birthday is september 12, and i am 14. 18+ please DNIUC, and anyone under 11 please DNI! im also taken so dont flirt.
-i am a huge ivan, abaddon and broken spawn fictkin. they are me/srs doubles pls dni, sorry:( !!
+my birthday is september 12, and i am 14. 18+ please DNIUC, and anyone under 11 please DNI. 
+again, i am a huge ivan, abaddon and broken spawn fictkin. they are me/srs, doubles heavily dni.
 anyways, onto my interests .ᐟ ★
 
 # ♰ 𓏼  interests ◞
@@ -19,11 +17,11 @@ anyways, onto my interests .ᐟ ★
 
 # ꒰୨୧◞ 。please dni if...⠀
 
-; - ur under 11 unless close, ur 18 or over unless were close, ur a proshipper / darkshipper (yall r gross...), also if ur a broken spawn fictkin. sorry
+; - ur under 11 unless close, ur 18 or over unless were close, ur a proshipper / darkshipper (ew.), and again, if ur also an abaddon, broken spawn or ivan fictkin.
 
 # 〨   ˒˒   please note    ꜝꜝ ♡
 
-౿ ݁  .            i am mentally ill. i have autism, ADHD, bpd and osdd. please treat me with care:) ┆ if i say "im [blanks] #1 fan" please don't make it a compeition. it makes me uncomfortable, js respect that ┆ i am a fictkin w/ many fictotypes. i will tell some doubles to DNI, sorry :( ┆  we dont give out our SP like free money. you'll only get it if ur close to us! ┆ i have hypersomnia. if i dont reply immediately, don't take it to heart. im probably asleep! ᶻ𝗓
+౿ ݁  .            i am mentally ill. i have autism, ADHD, bpd and osdd. please treat me with care. ┆ if i say "im [blanks] #1 fan" please don't make it a compeition. it makes me uncomfortable, js respect that ┆ i am a fictkin w/ many fictotypes, fictkins are different from fictives. ┆  we dont give out our SP like free money. you'll only get it if ur close to us. ┆ i have hypersomnia. if i dont reply immediately, don't take it to heart. im probably asleep ᶻ𝗓
 
 thats all, byebye
 (hi star, hi skyb0x love yall<3)
