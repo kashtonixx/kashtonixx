@@ -1,11 +1,11 @@
-<img width="400" height="110" alt="Image" src="https://github.com/user-attachments/assets/ae297f23-bd97-404b-8210-51b418b4991c" />
+<img width="400" height="134" alt="Image" src="https://github.com/user-attachments/assets/dfe3d0b8-39d0-47df-b9f3-2a5cc6971f94" />
 
-## ₁　　　　　𓎢𓎡　　　kashton　　╱　　abaddon　　ᛝ
+## ₁　　　　　𓎢𓎡　　　bill　　╱　　abaddon　　ᛝ
 
 
 ꧁༻✧༺꧂
 
-♯ ┆ greetings, my name is abaddon. and only that, no other names! if you hear someone call me atlas, it is because their either very close to me, an irl friend or they are unaware of my name change. anyways, i am 14, and i am neurodivergent (audhd) mentally ill fictive heavy system that collectively kins/is a fictkin of broken spawn, ivan (bad things), and abaddon. we prefer doubles to not interact, and we use we and i interchangeably. i am happily taken by star and skyb0x, <333 
+♯ ┆ greetings, my name is abaddon or bill. and only that, no other names! if you hear someone call me atlas, it is because their either very close to me, an irl friend or they are unaware of my name change. anyways, i am 14, and i am neurodivergent (audhd) mentally ill fictive heavy system that collectively kins/is a fictkin of broken spawn, ivan (bad things), bill cipher, and abaddon. we prefer doubles to not interact, and we use we and i interchangeably. i am happily taken by star and skyb0x, <333 
 
 my birthday is september 12, and i am 14. 18+ please DNIUC, and anyone under 11 please DNI. 
 again, i am a huge ivan, abaddon and broken spawn fictkin. they are me/srs, doubles heavily dni.
@@ -26,6 +26,7 @@ anyways, onto my interests .ᐟ ★
 thats all, byebye
 (hi star, hi skyb0x love yall<3)
 
-<img width="400" height="110" alt="Image" src="https://github.com/user-attachments/assets/5f16bd51-f3d9-4f09-9e9b-5dfee79166c3" />
+<img width="400" height="134" alt="Image" src="https://github.com/user-attachments/assets/5b4339b5-2a85-4199-91c9-e970d67a38be" />
+
 
 
