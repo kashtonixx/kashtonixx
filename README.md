@@ -1,6 +1,6 @@
 <img width="400" height="134" alt="Image" src="https://github.com/user-attachments/assets/dfe3d0b8-39d0-47df-b9f3-2a5cc6971f94" />
 
-## ₁　　　　　𓎢𓎡　　　bill　　╱　　abaddon　　ᛝ
+<img width="400" height="394" alt="Image" src="https://github.com/user-attachments/assets/4face664-dd16-4ca7-8f9a-3e7ee994989c" /> ## ₁　　　　　𓎢𓎡　　　bill　　╱　　abaddon　　ᛝ
 
 
 ꧁༻✧༺꧂
@@ -13,7 +13,7 @@ anyways, onto my interests .ᐟ ★
 
 # ♰ 𓏼  interests ◞
 
-꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : **8:11**, **HWWHP**, FNF, FNAF, **Bad Things**, **Picos School**, **Let Him Go**, Forsaken, Block Tales, BFDI/TPOT, Befriend The Retroslop, Cold Front, CRK, Dandys World, Dead Plate, **DOORS**, DSMP, **Gravity Falls**, **JSAB**, Kaleidoscope, Ocean Terror, PHIGHTING, Pizza Game, Regretevator, Rochas313, **ItzSkeet_Playz**, **Brandonworks**, South Park, Squid Game, Hazbin Hotel, **Haunted Hotel**, Grace, TADC, Sonic, Chonny Jash. May Madness 2012, Poppy Playtime, OMORI, Demon Slayer, The Mandela Catalogue, **Nicos Nextbots**, Generation Loss, **Stray** ﹒~
+꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : **8:11**, **HWWHP**, FNF, FNAF, **Bad Things**, **Picos School**, **Let Him Go**, Forsaken, Block Tales, BFDI/TPOT, Befriend The Retroslop, Cold Front, CRK, Dandys World, Dead Plate, **DOORS**, DSMP, **Gravity Falls**, **JSAB**, Kaleidoscope, Ocean Terror, PHIGHTING, Pizza Game, Regretevator, Rochas313, **ItzSkeet_Playz**, **Brandonworks**, South Park, Squid Game, Hazbin Hotel, **Haunted Hotel**, Grace, TADC, Sonic, Chonny Jash. May Madness 2012, Poppy Playtime, OMORI, Demon Slayer, The Mandela Catalogue, **Nicos Nextbots**, Generation Loss, **Stray** ﹒~ <img width="900" height="768" alt="Image" src="https://github.com/user-attachments/assets/593057ac-84fd-4c45-b09a-2268e95cb4d4" />
 
 # ꒰୨୧◞ 。please dni if...⠀
 
