@@ -1,6 +1,6 @@
-<img width="400" height="134" alt="Image" src="https://github.com/user-attachments/assets/dfe3d0b8-39d0-47df-b9f3-2a5cc6971f94" />
+<img width="400" height="157" alt="Image" src="https://github.com/user-attachments/assets/7aecdbf3-e607-4142-be76-d35474e2c300" />
 
-<img width="400" height="394" alt="Image" src="https://github.com/user-attachments/assets/4face664-dd16-4ca7-8f9a-3e7ee994989c" /> ## ₁　　　　　𓎢𓎡　　　bill　　╱　　abaddon　　ᛝ
+/> ## ₁　　　　　𓎢𓎡　　　bill　　╱　　abaddon　　ᛝ
 
 
 ꧁༻✧༺꧂
@@ -26,7 +26,7 @@ anyways, onto my interests .ᐟ ★
 thats all, byebye
 (hi star, hi skyb0x love yall<3)
 
-<img width="400" height="134" alt="Image" src="https://github.com/user-attachments/assets/5b4339b5-2a85-4199-91c9-e970d67a38be" />
+<img width="400" height="58" alt="Image" src="https://github.com/user-attachments/assets/71c169c5-5c4f-4d22-91c6-cd1348c1e4a9" />
 
 
 
