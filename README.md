@@ -1,6 +1,6 @@
 <img width="400" height="157" alt="Image" src="https://github.com/user-attachments/assets/7aecdbf3-e607-4142-be76-d35474e2c300" />
 
-/> ## ₁　　　　　𓎢𓎡　　　bill　　╱　　abaddon　　ᛝ
+## ₁　　　　　𓎢𓎡　　　bill　　╱　　abaddon　　ᛝ
 
 
 ꧁༻✧༺꧂
