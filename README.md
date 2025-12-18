@@ -1,23 +1,23 @@
-<img width="400" height="157" alt="Image" src="https://github.com/user-attachments/assets/7aecdbf3-e607-4142-be76-d35474e2c300" />
+<img width="400" height="125" alt="Image" src="https://github.com/user-attachments/assets/32edef67-cd93-4321-9ab9-e64fa8cc8a89" />
 
-## ₁　　　　　𓎢𓎡　　　bill　　╱　　abaddon　　ᛝ
+## ₁　　　　　𓎢𓎡　　　loki　　╱　　abaddon　　ᛝ
 
 
 ꧁༻✧༺꧂
 
-♯ ┆ greetings, my name is abaddon or bill. and only that, no other names! if you hear someone call me atlas, it is because their either very close to me, an irl friend or they are unaware of my name change. anyways, i am 14, and i am neurodivergent (audhd) mentally ill fictive heavy system that collectively kins/is a fictkin of broken spawn, ivan (bad things), bill cipher, and abaddon. we prefer doubles to not interact, and we use we and i interchangeably. i am happily taken by star and skyb0x, <333 
+♯ ┆ greetings, my name is abaddon, loki or bill. and only that, no other names! if you hear someone call me atlas, it is because their either very close to me, an irl friend or they are unaware of my name change. anyways, i am 14, and i am neurodivergent (audhd) mentally ill fictive heavy system that collectively kins/is a fictkin of broken spawn, loki, bill cipher, and abaddon. we prefer doubles to not interact, and we use we and i interchangeably. i am happily taken by star and skyb0x, <333 
 
 my birthday is september 12, and i am 14. 18+ please DNIUC, and anyone under 11 please DNI. 
-again, i am a huge ivan, abaddon and broken spawn fictkin. they are me/srs, doubles heavily dni.
+again, i am a huge loki, abaddon and broken spawn fictkin. they are me/srs, doubles heavily dni.
 anyways, onto my interests .ᐟ ★
 
 # ♰ 𓏼  interests ◞
 
-꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : **8:11**, **HWWHP**, FNF, FNAF, **Bad Things**, **Picos School**, **Let Him Go**, Forsaken, Block Tales, BFDI/TPOT, Befriend The Retroslop, Cold Front, CRK, Dandys World, Dead Plate, **DOORS**, DSMP, **Gravity Falls**, **JSAB**, Kaleidoscope, Ocean Terror, PHIGHTING, Pizza Game, Regretevator, Rochas313, **ItzSkeet_Playz**, **Brandonworks**, South Park, Squid Game, Hazbin Hotel, **Haunted Hotel**, Grace, TADC, Sonic, Chonny Jash. May Madness 2012, Poppy Playtime, OMORI, Demon Slayer, The Mandela Catalogue, **Nicos Nextbots**, Generation Loss, **Stray** ﹒~ 
+꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : **8:11**, **HWWHP**, FNF, FNAF, **Bad Things**, **Picos School**, **Let Him Go**, Forsaken, Block Tales, BFDI/TPOT, Befriend The Retroslop, Cold Front, CRK, Dandys World, Dead Plate, **DOORS**, DSMP, **Gravity Falls**, **JSAB**, Kaleidoscope, Ocean Terror, PHIGHTING, Pizza Game, Regretevator, Rochas313, **ItzSkeet_Playz**, **Brandonworks**, South Park, Squid Game, Hazbin Hotel, **Haunted Hotel**, Grace, TADC, Sonic, Chonny Jash. May Madness 2012, Poppy Playtime, OMORI, Demon Slayer, The Mandela Catalogue, **Nicos Nextbots**, Generation Loss, **Stray**, Marvel, SFAWTDE, AndrewW2002 (i am not typing that fucking name) ﹒~ 
 
 # ꒰୨୧◞ 。please dni if...⠀
 
-; - ur under 11 unless close, ur 18 or over unless were close, ur a proshipper / darkshipper (ew.), and again, if ur also an abaddon, broken spawn or ivan fictkin.
+; - ur under 11 unless close, ur 18 or over unless were close, ur a proshipper / darkshipper (ew.), you like murder drones, and again, if ur also an abaddon, bill cipher, loki, or broken spawn fictkin.
 
 # 〨   ˒˒   please note    ꜝꜝ ♡
 
@@ -26,7 +26,7 @@ anyways, onto my interests .ᐟ ★
 thats all, byebye
 (hi star, hi skyb0x love yall<3)
 
-<img width="400" height="58" alt="Image" src="https://github.com/user-attachments/assets/71c169c5-5c4f-4d22-91c6-cd1348c1e4a9" />
+<img width="400" height="125" alt="Image" src="https://github.com/user-attachments/assets/5d6b0975-74d3-4e3e-a34d-7c768e4d7d52" />
 
 
 
