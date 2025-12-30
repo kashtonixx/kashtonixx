@@ -18,7 +18,7 @@ anyways, onto my interests .ᐟ ★
 # ꒰୨୧◞ 。please dni if...⠀
 
 ; - ur under 11 unless close, ur 18 or over unless were close, ur a proshipper / darkshipper (ew.), you like murder drones, and again, if ur also an abaddon, bill cipher, loki, or broken spawn fictkin.
-
+a full, detailed dni list: https://docs.google.com/document/d/1ApdtP2H6h9sW01vDcUkoqHj1omKs9aKdrgqgspgK4XY/edit?tab=t.0
 # 〨   ˒˒   please note    ꜝꜝ ♡
 
 ౿ ݁  .            i am mentally ill. i have autism, ADHD, bpd and osdd. please treat me with care. ┆ if i say "im [blanks] #1 fan" please don't make it a compeition. it makes me uncomfortable, js respect that ┆ i am a fictkin w/ many fictotypes, fictkins are different from fictives. ┆  we dont give out our SP like free money. you'll only get it if ur close to us. ┆ i have hypersomnia. if i dont reply immediately, don't take it to heart. im probably asleep ᶻ𝗓
