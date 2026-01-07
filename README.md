@@ -1,4 +1,4 @@
-<img width="400" height="125" alt="Image" src="https://github.com/user-attachments/assets/32edef67-cd93-4321-9ab9-e64fa8cc8a89" />
+<img width="400" height="157" alt="Image" src="https://github.com/user-attachments/assets/ca0770ca-5641-4024-abce-4a2e2439c64d" />
 
 ## ₁　　　　　𓎢𓎡　　　kashton　　╱　　andre　　ᛝ
 
@@ -26,7 +26,7 @@ a full, detailed dni list: https://docs.google.com/document/d/1ApdtP2H6h9sW01vDc
 thats all, byebye
 (hi star, hi skyb0x love yall<3)
 
-<img width="400" height="125" alt="Image" src="https://github.com/user-attachments/assets/5d6b0975-74d3-4e3e-a34d-7c768e4d7d52" />
+![Image](https://github.com/user-attachments/assets/3a0f97e3-dcc5-4836-a3ee-655edfb46296)
 
 
 
