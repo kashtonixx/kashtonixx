@@ -1,32 +1,8 @@
-<img width="400" height="157" alt="Image" src="https://github.com/user-attachments/assets/ca0770ca-5641-4024-abce-4a2e2439c64d" />
+ <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/b4b8b8d2-ad95-4d75-83d1-fd1414db88db" />
 
-## ₁　　　　　𓎢𓎡　　　kashton　　╱　　andre　　ᛝ
-
-
-꧁༻✧༺꧂
-
-♯ ┆ hello!!! my name is kashton, atlas or andre. (i prefer kashton, atlas is for close friends) anyways, i am 14, and i am neurodivergent (audhd) mentally ill fictive heavy system that collectively kins/is a fictkin of broken spawn, loki, bill cipher, and abaddon. we prefer doubles to not interact, and we use we and i interchangeably. i am happily taken by star and skyb0x, <333 
-
-my birthday is september 12, and i am 14. 18+ please DNIUC, and anyone under 11 please DNI. 
-again, i am a huge broken spawn, andre and micha fictkin. they are me/srs, doubles heavily dniuf/unless i say u can int!!
-anyways, onto my interests .ᐟ ★
-
-# ♰ 𓏼  interests ◞
-
-꒰🫐꒱﹒ likes : drawing, writing, makin ponies, space, extreme weather, my friends ﹒⟢ fandoms : **8:11**, **HWWHP**, FNF, FNAF, **Bad Things**, **Picos School**, **Let Him Go**, Forsaken, Block Tales, BFDI/TPOT, Befriend The Retroslop, Cold Front, CRK, Dandys World, Dead Plate, **DOORS**, DSMP, **Gravity Falls**, **JSAB**, Kaleidoscope, Ocean Terror, PHIGHTING, Pizza Game, Regretevator, Rochas313, **ItzSkeet_Playz**, **Brandonworks**, South Park, Squid Game, Hazbin Hotel, **Haunted Hotel**, Grace, TADC, Sonic, Chonny Jash. May Madness 2012, Poppy Playtime, OMORI, Demon Slayer, The Mandela Catalogue, **Nicos Nextbots**, Generation Loss, **Stray**, Marvel, **SFAWTDE, Minecraft ARG but The Protagonist is a Speedrunner, + A ReGect.** ﹒~ 
-
-# ꒰୨୧◞ 。please dni if...⠀
-
-; - ur under 11 unless close, ur 18 or over unless were close, ur a proshipper / darkshipper (ew.), you like murder drones, and again, if ur also an abaddon, bill cipher, loki, or broken spawn fictkin.
-a full, detailed dni list: https://docs.google.com/document/d/1ApdtP2H6h9sW01vDcUkoqHj1omKs9aKdrgqgspgK4XY/edit?tab=t.0
-# 〨   ˒˒   please note    ꜝꜝ ♡
-
-౿ ݁  .            i am mentally ill. i have autism, ADHD, bpd and osdd. please treat me with care. ┆ if i say "im [blanks] #1 fan" please don't make it a compeition. it makes me uncomfortable, js respect that ┆ i am a fictkin w/ many fictotypes, fictkins are different from fictives. ┆  we dont give out our SP like free money. you'll only get it if ur close to us ┆ i have hypersomnia. if i dont reply immediately, don't take it to heart! im probably asleep ᶻ𝗓
-
-thats all, byebye
-(hi star, hi skyb0x love yall<3)
-
-![Image](https://github.com/user-attachments/assets/3a0f97e3-dcc5-4836-a3ee-655edfb46296)
+‹ ︎   ✦ 𓏻  **andre** ou *kashton* ’ ◟ 🎹
+     he ﹔any   𝄞݂۫   𓈒  isfp-t
+ ꒰ ᩧ 𓈒 audhd, bpd, osdd  ⁄⁄͈ . ᴗ͈)
 
 
 
