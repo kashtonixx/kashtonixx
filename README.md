@@ -1,6 +1,6 @@
- <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/b4b8b8d2-ad95-4d75-83d1-fd1414db88db" />
+<img width="250" height="249" alt="Image" src="https://github.com/user-attachments/assets/80fea2f0-c5db-4057-af54-2d22ebdfda3e" />
 
-‹ ︎   ✦ 𓏻  **andre** ou *kashton* ’ ◟ 🎹
+‹ ︎   ✦ 𓏻  **andre** , *kashton*  , **cosmo** ’ ◟ 🎹
 
      he ﹔any   𝄞݂۫   𓈒  isfp-t
      
